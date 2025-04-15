@@ -23,4 +23,4 @@ Allow user to contact any staff
 
 Video tutorial
 
-https://youtube.com/shorts/zLwiBLFeCcA?feature=share
+[https://youtube.com/shorts/zLwiBLFeCcA?feature=share](https://youtube.com/shorts/6CGCZUV6AXU)
